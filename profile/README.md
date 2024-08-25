@@ -1,4 +1,4 @@
-## Hi there 👋 I bomb kids!!
+## Hi there 👋💣
 
 <!--
 
