@@ -1,6 +1,6 @@
 
 
-# Monkey Poo Studios
+# Monkey Studios
 Oh yeah yeah yeahh oh yeah
 Hi there 👋💣
 
